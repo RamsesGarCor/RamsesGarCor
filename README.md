@@ -6,7 +6,7 @@
 
 💞️ Estoy buscando colaborar en Una empresa nacional de desarrollo
 
-📫 Cómo llegar a mí  2211562382
+📫 Cómo llegar a mí  2222658108
 
 <!---
 RamsesGarCor/RamsesGarCor is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
